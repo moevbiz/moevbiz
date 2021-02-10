@@ -1,3 +1,2 @@
-soft launch 
+s[o](https://moev.biz)ft launch 
 🔵🔴🟡🟠🟤🟢🟣
-https://moev.biz
