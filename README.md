@@ -1,1 +1,2 @@
-soft launch
+soft launch 
+🔵🔴🟡🟠🟤🟢🟣
