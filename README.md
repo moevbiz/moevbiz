@@ -1,2 +1,2 @@
-s[o](https://moev.biz)ft launch 
+fr[o](https://moev.biz)ntend 
 🔵🔴🟡🟠🟤🟢🟣
